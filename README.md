@@ -1,3 +1,3 @@
 #  João Seixas
 
-Endereço : Rui Barbosa 154 - Maŕilia - SP
+Endereço : Rui Barbosa 154 - Marilia - SP
