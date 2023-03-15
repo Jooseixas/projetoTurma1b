@@ -6,6 +6,3 @@ Experiencia:
 
 Aluno Unimar
 
-Aula
-
----
